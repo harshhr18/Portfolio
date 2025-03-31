@@ -1,6 +1,6 @@
-# 🌐 Harsh Gahlyan's Portfolio
+# 🌐 Harsh's Portfolio
 
-# 🚀 Live Portfolio: [Click Here](https://harsh0371.github.io/Portfolio/)
+# 🚀 Live Portfolio: [Click Here](https://harshhr18.github.io/Portfolio/)
 
 ---
 
